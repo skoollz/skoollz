@@ -11,6 +11,8 @@ The Skoollz NFTs feature references of movie characters, both heroes and villain
 - 💀 X: https://x.com/Skoollz_NFTs
 
 - 👾 Discord: https://discord.gg/8tBYs5Ec5c
+
+- 👨‍🎨 Creator: https://aiindefi.com | https://x.com/aiindefi
   
 
 
